@@ -1,4 +1,4 @@
-tattoos
+Tattoos
 =======
 
 An archive of tattoos that I liked.
@@ -8,6 +8,126 @@ Order is not significant.
 1. Sakura
 ---------
 
-![sakura](t/1.jpg)
+![Sakura](t/1.jpg)
 
 <http://cocktailshaker.deviantart.com/art/sakura-141821105>
+
+
+2. Butterfly
+------------
+
+![Butterfly](t/2.jpg)
+
+<http://carlyshephard.deviantart.com/art/butterfly-tattoo-87967400>
+
+
+3. Nordic Wolf
+--------------
+
+![Nordic Wolf](t/3.jpg)
+
+<http://meatshop-tattoo.deviantart.com/art/Nordic-Wolf-mammen-style-358684407>
+
+
+4. Armor of Wyrms
+-----------------
+
+![Armor of Wyrms](t/4.jpg)
+
+<http://meatshop-tattoo.deviantart.com/art/Armor-of-Wyrms-day-10-Tattoo-of-the-ages-374416324>
+
+
+5. Flower of life and feathers
+------------------------------
+
+![Flower of life and feathers](t/5.jpg)
+
+<http://meatshop-tattoo.deviantart.com/art/Flower-of-life-and-feathers-369783794>
+
+
+6. Freehand biomechanic sleeve
+------------------------------
+
+![Freehand biomechanic sleeve](t/6.jpg)
+
+<http://sideusz.deviantart.com/art/freehand-biomechanic-sleeve-187351307>
+
+
+7. Wildflowers
+--------------
+
+![Wildflowers](t/7.jpg)
+
+<http://bailey--elizabeth.deviantart.com/art/wildflowers-261462049>
+
+
+8. Polynesian sleeve
+--------------------
+
+![Polynesian sleeve](t/8.jpg)
+
+<http://meatshop-tattoo.deviantart.com/art/Polynesian-sleeve-process-208549362>
+
+
+9. Roses
+--------
+
+![Roses](t/9.jpg)
+
+<http://grimmy3d.deviantart.com/art/Roses-339837402>
+
+
+10. Watercolor Abstract
+-----------------------
+
+![Watercolor Abstract](t/10.jpg)
+
+<http://koraykaragozler.deviantart.com/art/watercolor-abstract-2-303862082>
+
+
+11. Blue Birds
+--------------
+
+![Blue Birds](t/11.jpg)
+
+<http://weheartit.com/entry/16450997>
+
+
+12. Bird Back Shoulder
+----------------------
+
+![Bird Back Shoulder](t/12.jpg)
+
+<http://pinterest.com/pin/225672631298997119/>
+
+
+13. Indian
+----------
+
+![Indian](t/13.jpg)
+
+<http://facebook.com>
+
+
+14. Ondrash
+-----------
+
+![Ondrash](t/14.jpg)
+
+<http://nyjahatuatao.tumblr.com/post/56892002892/ondrash>
+
+
+15. &lt;3 Hands
+---------------
+
+![&lt;3 Hands](t/15.jpg)
+
+<http://tattrx.tumblr.com/post/55752193793/yanina-viland-st-petersburg-russia-yanina>
+
+
+16. Nazareno Tubaro
+-------------------
+
+![Nazareno Tubaro](t/16.jpg)
+
+<http://www.nazareno-tubaro.com/detalle.php?id=55>
