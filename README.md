@@ -131,3 +131,11 @@ Order is not significant.
 ![Nazareno Tubaro](t/16.jpg)
 
 <http://www.nazareno-tubaro.com/detalle.php?id=55>
+
+
+17. x
+-----
+
+![x](t/17.jpg)
+
+<http://coolstoryfuckface.tumblr.com/post/58204522681>
