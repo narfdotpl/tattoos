@@ -139,3 +139,11 @@ Order is not significant.
 ![x](t/17.jpg)
 
 <http://coolstoryfuckface.tumblr.com/post/58204522681>
+
+
+18. Elephant by Chris Rigoni
+----------------------------
+
+![Elephant](t/18.jpg)
+
+<http://imgur.com/sdgxn5d>
