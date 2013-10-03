@@ -147,3 +147,11 @@ Order is not significant.
 ![Elephant](t/18.jpg)
 
 <http://imgur.com/sdgxn5d>
+
+
+19. by Chris Rigoni
+-------------------
+
+![?](t/19.jpg)
+
+<https://www.facebook.com/photo.php?fbid=10151611971071998>
