@@ -155,3 +155,11 @@ Order is not significant.
 ![?](t/19.jpg)
 
 <https://www.facebook.com/photo.php?fbid=10151611971071998>
+
+
+20. 3D Geometry by Sideshow Alley Tattoo Odditorium
+---------------------------------------------------
+
+![3D Geometry](t/20.jpg)
+
+<https://www.facebook.com/photo.php?fbid=621611887889935&set=pb.123037431080719>
