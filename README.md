@@ -171,3 +171,11 @@ Order is not significant.
 ![Geometric leg](t/21.jpg)
 
 <http://imgur.com/cPtHFgT>
+
+
+22. Liu Bei
+-----------
+
+![](t/22.jpg)
+
+<http://imgur.com/8NRbSBD>
