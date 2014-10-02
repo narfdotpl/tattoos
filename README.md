@@ -179,3 +179,11 @@ Order is not significant.
 ![](t/22.jpg)
 
 <http://imgur.com/8NRbSBD>
+
+
+23. Octopus by Dots To Lines
+----------------------------
+
+![](t/23.jpg)
+
+<http://instagram.com/p/to6pkWwFqD/>
