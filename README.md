@@ -187,3 +187,11 @@ Order is not significant.
 ![](t/23.jpg)
 
 <http://instagram.com/p/to6pkWwFqD/>
+
+
+24. Lonely wolf the in forest by Andrei Surdulescu at Radical Ink, Bucuresti, Romania
+-------------------------------------------------------------------------------------
+
+![](t/24.jpg)
+
+<http://imgur.com/oKKoXEc>
