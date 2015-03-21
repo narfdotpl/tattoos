@@ -203,3 +203,11 @@ Order is not significant.
 ![](t/25.jpg)
 
 <http://www.reddit.com/r/tattoos/comments/2ue57r/poseidon_by_simon_bell_liverpool_england/>
+
+
+26. Solar System done by Bryan Blanco at Club Tattoo, San Francisco
+-------------------------------------------------------------------
+
+![](t/26.jpg)
+
+<http://www.reddit.com/r/tattoos/comments/2zmsrv/first_tattoo_a_map_of_the_solar_system_done_by/>
