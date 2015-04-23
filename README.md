@@ -211,3 +211,11 @@ Order is not significant.
 ![](t/26.jpg)
 
 <http://www.reddit.com/r/tattoos/comments/2zmsrv/first_tattoo_a_map_of_the_solar_system_done_by/>
+
+
+27. Lion by Max Bonari, Manaus, Brazil
+--------------------------------------
+
+![](t/27.jpg)
+
+<http://www.reddit.com/r/tattoos/comments/33ld8e/lion_tattoo_by_max_bonari_bonari_tattoo_manaus/>
