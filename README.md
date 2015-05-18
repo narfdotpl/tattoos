@@ -219,3 +219,11 @@ Order is not significant.
 ![](t/27.jpg)
 
 <http://www.reddit.com/r/tattoos/comments/33ld8e/lion_tattoo_by_max_bonari_bonari_tattoo_manaus/>
+
+
+28. Waves by Tritoan Ly, Auckland, New Zealand
+----------------------------------------------
+
+![](t/28.jpg)
+
+<http://www.reddit.com/r/tattoos/comments/36ccs6/my_first_tattoo_tritoan_ly_auckland_nz/>
