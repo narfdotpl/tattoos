@@ -227,3 +227,11 @@ Order is not significant.
 ![](t/28.jpg)
 
 <http://www.reddit.com/r/tattoos/comments/36ccs6/my_first_tattoo_tritoan_ly_auckland_nz/>
+
+
+29. Metatron Cubes by Sunny Bhanushali at Aliens Tattoo, Mumbai
+---------------------------------------------------------------
+
+![](t/29.jpg)
+
+<http://alienstattoos.com/index.php/portfolio/metatron-cubes-dotwork-tattoo/>
