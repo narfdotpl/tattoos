@@ -235,3 +235,11 @@ Order is not significant.
 ![](t/29.jpg)
 
 <http://alienstattoos.com/index.php/portfolio/metatron-cubes-dotwork-tattoo/>
+
+
+30. Animal mandala by Kirk Nilsen II at Sri Yantra, Oakland, CA
+---------------------------------------------------------------
+
+![](t/30.jpg)
+
+<https://www.reddit.com/r/tattoos/comments/3lt86g/my_animal_mandala_courtesy_of_kirk_nilsen_ii/>
