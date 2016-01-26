@@ -243,3 +243,11 @@ Order is not significant.
 ![](t/30.jpg)
 
 <https://www.reddit.com/r/tattoos/comments/3lt86g/my_animal_mandala_courtesy_of_kirk_nilsen_ii/>
+
+
+31. Dot owl Tegan Rush at Chronic Ink Toronto, Ontario
+-------------------------------------------------------
+
+<https://www.reddit.com/r/tattoos/comments/42n8fx/custom_owl_dot_work_tattoo_by_tegan_rush_chronic/>
+
+![](t/31.jpg)
