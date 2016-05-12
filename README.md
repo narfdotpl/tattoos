@@ -251,3 +251,11 @@ Order is not significant.
 <https://www.reddit.com/r/tattoos/comments/42n8fx/custom_owl_dot_work_tattoo_by_tegan_rush_chronic/>
 
 ![](t/31.jpg)
+
+
+32. Boy and lion by Mo Ganji, Berlin
+------------------------------------
+
+<https://www.instagram.com/p/-lUbayNvW6/>
+
+![](t/32.jpg)
