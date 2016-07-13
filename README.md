@@ -267,3 +267,11 @@ Order is not significant.
 <https://www.instagram.com/p/BBSZT1SNvWv/>
 
 ![](t/33.jpg)
+
+
+34. Geometric blackwork sleeve by Ben Volt, Form8 Tattoo, San Francisco
+-----------------------------------------------------------------------
+
+<https://www.reddit.com/r/tattoos/comments/4sip6g/my_geometric_blackwork_sleeve_is_getting_closer/>
+
+![](t/34.jpg)
