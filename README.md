@@ -275,3 +275,11 @@ Order is not significant.
 <https://www.reddit.com/r/tattoos/comments/4sip6g/my_geometric_blackwork_sleeve_is_getting_closer/>
 
 ![](t/34.jpg)
+
+
+35. Particle duality principle by Pino Savnik, Black and Brown tattoo,  Slovenia
+--------------------------------------------------------------------------------
+
+<https://www.reddit.com/r/tattoos/comments/4smnvo/particle_duality_principle_pino_savnik_black_and/>
+
+![](t/35.jpg)
