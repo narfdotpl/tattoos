@@ -283,3 +283,11 @@ Order is not significant.
 <https://www.reddit.com/r/tattoos/comments/4smnvo/particle_duality_principle_pino_savnik_black_and/>
 
 ![](t/35.jpg)
+
+
+36, 37. [Joshua Eustis](https://en.wikipedia.org/wiki/Joshua_Eustis)
+--------------------------------------------------------------------
+
+![](t/36.jpg)
+
+![](t/37.jpg)
