@@ -291,3 +291,11 @@ Order is not significant.
 ![](t/36.jpg)
 
 ![](t/37.jpg)
+
+
+38. Lion and bear tattoos by Christie, Parlour Tricks Tattoo, Colorado
+----------------------------------------------------------------------
+
+![](t/38.jpg)
+
+<https://www.reddit.com/r/tattoos/comments/78pwff/my_twin_brother_and_i_lion_and_bear_tattoos_done/>
