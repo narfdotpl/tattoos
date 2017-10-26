@@ -299,3 +299,11 @@ Order is not significant.
 ![](t/38.jpg)
 
 <https://www.reddit.com/r/tattoos/comments/78pwff/my_twin_brother_and_i_lion_and_bear_tattoos_done/>
+
+
+39. Tatau sleeve by Alipate Fetuli, A-Town Tatttoo, Garden Grove, California
+----------------------------------------------------------------------------
+
+![](t/39.jpg)
+
+<https://www.reddit.com/r/tattoos/comments/78o67b/inside_shot_of_my_tatau_sleeve_by_alipate_fetuli/>
