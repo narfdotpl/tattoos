@@ -307,3 +307,15 @@ Order is not significant.
 ![](t/39.jpg)
 
 <https://www.reddit.com/r/tattoos/comments/78o67b/inside_shot_of_my_tatau_sleeve_by_alipate_fetuli/>
+
+
+40, 41. Glitches by Nickavge
+----------------------------
+
+![](t/40.jpg)
+
+<https://www.instagram.com/p/BjFyiDuHOVR/>
+
+![](t/41.jpg)
+
+<https://www.instagram.com/p/BixJ5aWHfHv/>
