@@ -319,3 +319,11 @@ Order is not significant.
 ![](t/41.jpg)
 
 <https://www.instagram.com/p/BixJ5aWHfHv/>
+
+
+42. Aparat z jednej linii by @siwa_handpoke, Aura Tattoo, Bydgoszcz
+-------------------------------------------------------------------
+
+![](t/42.jpg)
+
+<https://www.instagram.com/p/CDbUAmHJvxc/>
