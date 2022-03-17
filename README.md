@@ -327,3 +327,11 @@ Order is not significant.
 ![](t/42.jpg)
 
 <https://www.instagram.com/p/CDbUAmHJvxc/>
+
+
+43. Black and gray waves by @alexthroy, Pórtico Tattoo Gallery, Warsaw
+----------------------------------------------------------------------
+
+![](t/43.jpg)
+
+<https://www.instagram.com/p/CXJnBWBrOPU/>
